@@ -1,1 +1,3 @@
-# .github
+# *The Gift of Being Yourself: Unmasking the False Self and Embracing Your Sacred Identity*
+## *“The Gift of Being Yourself: The Sacred Call to Self-Discovery” by David G. Benner is an invitation to the sacred work of uncovering and living into one’s truest identity. It’s not just a book; it’s a compassionate roadmap for anyone longing to break free from the masks, compulsions, and anxieties of the “false self” in order to experience spiritual transformation and authentic wholeness in God. With an engaging blend of psychology and spirituality, Benner gently guides readers through the stages of self-discovery, reminding us that truly knowing ourselves and knowing God are inseparable journeys.* [More details…](https://spiritualkhazaana.com/the-gift-of-being-yourself-sacred-identity/)
+## #beingyourself #knowinggod #knowingyourself #spiritualjourney #selfdiscovery
